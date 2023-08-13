@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="AWhxp63uCRd2MiYGxyIcq5U856eWfOdX_zbtfG-Fn3o" />
 # Free Web Resources
 Free web resources available on internet.
 
